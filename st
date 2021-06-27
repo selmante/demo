@@ -1,3 +1,0 @@
-dasem
-sasas
-sasasa
